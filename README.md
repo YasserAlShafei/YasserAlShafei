@@ -26,7 +26,7 @@
 - 📫 How to reach me **yalshafei@hotmail.com**
 <p align="center">
 
-     via whatsapp <a href="https://wa.me/970595837940" target="blank">
+     via whatsapp https://wa.me/970595837940
   </p>
 <br>
 
