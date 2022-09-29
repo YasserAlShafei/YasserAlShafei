@@ -24,7 +24,10 @@
 - :thinking: I’m currently open for: `An Intern` or a new `job opportunity`, this is [MY RESUME](https://onedrive.live.com/?cid=4228B271A0C59F9F&id=4228B271A0C59F9F%2119814&parId=4228B271A0C59F9F%213258&o=OneUp).
 - :nerd_face: Always `learning new things`
 - 📫 How to reach me **yalshafei@hotmail.com**
+<p align="center">
 
+     via whatsapp https://wa.me/970595837940
+  </p>
 <br>
 
 ## <img src="https://media.giphy.com/media/iY8CRBdQXODJSCERIr/giphy.gif" width="30px" height="30"> Connect with me <img src='https://raw.githubusercontent.com/ShahriarShafin/ShahriarShafin/main/Assets/handshake.gif' width="30px" height="30">
