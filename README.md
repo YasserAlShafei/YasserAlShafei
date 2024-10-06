@@ -19,7 +19,6 @@
 ## :sassy_man:  About me
 - :school: I have `studied` Bachelor's degree at Islamic University in Information Technology department in Software Engineering department.
 - 💼 IT Lecturer on <a href="https://ar.cst.ps/">UCST</a>
-## - :trophy: `ACPC` Finalist 2021
 - :technologist: I love using Software as a solution for every `Problem`
 - :computer: I am a competitive programmer on `Freelancing platforms` mainly
 - :thinking: I’m currently open for: `An Intern` or a new `job opportunity`, this is [MY RESUME](https://onedrive.live.com/?cid=4228B271A0C59F9F&id=4228B271A0C59F9F%2119814&parId=4228B271A0C59F9F%213258&o=OneUp).
